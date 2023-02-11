@@ -6,4 +6,4 @@
 -->
 
 - 💬 Ask me about : Everything, may reply
-- 📫 How to reach me: See My Email~
+- 📫 How to contact : My Email~
